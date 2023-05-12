@@ -1,2 +1,3 @@
-# bjap
-বাংলাদেশ যুব অধিকার পরিষদ 
+# J.j.p
+jatiya Janata party 
+
