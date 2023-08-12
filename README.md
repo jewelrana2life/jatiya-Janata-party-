@@ -1,2 +1,3 @@
-# J.j.p
-জাতীয় জনতা পার্টি 
+#national people’s party 
+#জাতীয় জনতা পার্টি 
+NPP
